@@ -12,15 +12,15 @@
 
 ## 一、老牌机场推荐
 
-### 1）大哥云
+### （1）大哥云
 
 [大哥云](https://dageyun.com)  ，四年海外运营，安全稳定
 还有 15天无理由全额退款保证.[365VPN]
 
 
-### 2) 迷雾通： 
+### (2) 葫芦云：
 
-[迷雾通免翻墙链接](https://waa.ai/xiazaimiwutong)
+[葫芦云翻墙链接](https://waa.huluyun.cc)
 
 
 [官网，需要代理才能打开](https://geph.io/zhs/) 
