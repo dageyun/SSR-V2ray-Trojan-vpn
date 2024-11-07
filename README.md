@@ -3,6 +3,7 @@
 免费机场公益机场免费vpn免费代理SSR-V2ray-trojan
 
 随手同步更新到这频道，博客更新了可能不知道：[大哥云代理vpn机场](https://dageyun.com）
+<iframe width='100%' height='165px' src='https://s.jiesuo.one/s/161de93bedf04034a4b404944ca63929' frameBorder='0' allow='accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture' allowFullScreen></iframe>
 
 
 掌握最新机场优惠折扣通知，最新机场推荐评测图，最新科学上网相关新闻与消息,欢迎关注 ：[大哥云官方飞机频道](https://t.me/dageyun)
